@@ -8,7 +8,7 @@ Gunspin Unblocked is an **epic physics-based shooter** game where **your gun bec
 
 Whether you're at school, work, or just chilling at home, **Gunspin Unblocked** is the **ultimate pick-up-and-play experience**. No installation. No limits. Just pure, **blazing fun**.
 
-## <a href="https://izigames.net/">👉 Play Gunspin Unblocked 👈</a>
+## <a href="https://izigames.net/gunspin/">👉 Click To Play Gunspin Unblocked 👈</a>
 
 ---
 
